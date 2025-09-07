@@ -12,5 +12,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about balabala
 - 📫 How to reach me: linyoutong9207@gmail.com
 - 😄 Pronouns: balabala
-- ⚡ Fun fact: balabala
+- ⚡ Fun fact: 
+
+#1234567890987654321#
 
